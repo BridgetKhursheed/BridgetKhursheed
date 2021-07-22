@@ -15,7 +15,9 @@ get the mills generating electricity.
 They set to it: all the commuters pay my tithe in bread and sugar  
 until the salt-licked windows bow down and reveal  
 
-that bit of moor again. And it’s looking the other way.    
+that bit of moor again. And it’s looking the other way. 
+
+© extract from *Sometimes I can’t see out of my car without the windows open* by **Bridget Khursheed** first published in **Anthropocene** magazine.
 
 
 
