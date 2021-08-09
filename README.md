@@ -2,7 +2,7 @@
 - 👀 I’m interested in poetry, UI, cyber etc.
 - 🌱 I’m currently learning PERL for retro reasons and improving my Python.
 - 💞️ I’m looking to collaborate on creative coding & multi-dimensional poetry; image processing; microphishing; sound sculpture etc..
-- 📫 How to reach me @khursheb on Twitter is probably quickest.
+- 📫 How to reach me: @khursheb on Twitter is probably quickest.
 
 ---
 
